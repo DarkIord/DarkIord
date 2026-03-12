@@ -1,3 +1,3 @@
-[![](https://files.catbox.moe/ynwn5g.png)](https://github.com/Uictim)
+![ex](https://github.com/user-attachments/assets/a9faffe2-7833-4154-a407-b6d7d4feb5a6) 
 
-${{\color{Red}\Huge{\textsf{  ART\ BY\ ME!!\ Yayayya\ LOVE MY OOMFS<3\}}}}\$ -⭕️
+don't let her explode while im gone, okay?
