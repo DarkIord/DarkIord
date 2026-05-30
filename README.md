@@ -4,4 +4,5 @@
 
 
 
-<img width="2048" height="2048" alt="1000011157" src="https://github.com/user-attachments/assets/6ecec3d6-a6c8-44b8-bdb2-afb5bb2eb464" />
+<img width="600" height="333" alt="discord-banner-nnerc (1)" src="https://github.com/user-attachments/assets/de6bb433-3455-4534-aff9-6ca7fca0ab72" />
+
